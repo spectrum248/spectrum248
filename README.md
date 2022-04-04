@@ -8,4 +8,4 @@
 - 💬 Ask me about Core Java,C,C++,DBMS.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/shrihari-aundhakar-000845139/).
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I like to watch anime,movies :smiley:
+- ⚡ Fun fact: I like to watch anime,movies and Play Co-Op Games :smiley: 
